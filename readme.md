@@ -9,3 +9,8 @@ Agora sim eu posso inserir texto
 vamos lá ser fodão!!!!
 
 Este é um reppositório teste.
+
+
+agora sim porra eu fiz mei primeiro commit
+
+vai tomar no cu teu md
