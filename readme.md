@@ -35,3 +35,11 @@ a pessoa usa tanto essa porra que depois de uma tempo se acostuma a escrever com
 agora sim eu sei usar o vim porra
 que merda é essa ?
 vai ficar engraçado quando alguem for ler isso aqui...
+
+Agora estou mudando como foda. sou foda, sou foda, sou foda, sou foda, sou foda, sou foda...
+kkkkkkkkkkkkkkkk
+
+
+agora sim vamos agora escrever sem olhar a tela. eu quero escrever tudo sem olhar na tela puta que pariu, mas esse teclado é muito bom mesmo eu to quase conseguindo escrver tudo sem olhar.
+
+
